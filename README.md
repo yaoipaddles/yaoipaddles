@@ -20,3 +20,4 @@ i love south park mainly seasons 1-6 !!!!!
 ![pony-town-aranea __ shoulder boulders-boop-blinking-fixed-padded-1x](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/e0ca35ec-f4e9-4f85-9f04-ae27e59dd89e)
 ![pony-town-whive __ iwc __ w2int __ FRIVE-boop-blinking-fixed-padded-1x](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/5c32103a-f552-4450-ba67-481ef06c93b2)
 ![242324cbdbed2ac194e88d09d4c15a2f](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/7d632a4c-c9ae-437f-b4c6-4797d8c84a67)
+![pony-town-eric-- __ iwc please __ w2int-boop-blinking-fixed-padded-1x](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/36603213-a010-40e1-970a-49ceceb9cd52)
