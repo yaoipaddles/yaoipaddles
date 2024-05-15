@@ -1,7 +1,7 @@
 ![kibbysolovecoded](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/8e83ed01-e4b1-4488-8fe7-1ba37710412b)
 
 ![Untitled1_20240515050854](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/fed31980-27f2-4aaa-a714-e15f6021b8a8)
-![242324cbdbed2ac194e88d09d4c15a2f](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/304547f9-2a17-4f75-8983-7076a8ba1d14)
+
 
 ︵︵ HAI u can call me tallulah or andrew! 
 ![kibbysolovecoded](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/8b8687d1-7f18-4186-86b7-a7bc7623248a)
