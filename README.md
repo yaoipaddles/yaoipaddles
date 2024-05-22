@@ -23,5 +23,6 @@
 ![pony-town-white boy wasted!__ benatar-boop-blinking-fixed-padded-1x](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/b7d87ffc-7fc4-4e39-8a88-d47e985e1f3b)
 ![pony-town-W2INT __ nepeta __-boop-blinking-fixed-padded-1x](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/640fe640-2ba8-4f8f-8836-4ccb2956ee9f)
 ![pony-town-THE ARMY OF TWO! __ cal-boop-blinking-fixed-padded-1x](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/8e76c167-4581-40fc-b8eb-a71980c3f1bd)
+![pony-town-the bic boy __ cos-boop-blinking-fixed-padded-1x](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/1bbf7403-45bf-4a6a-8b5b-8fdc973edb39)
 
 ![kibbysolovecoded](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/a59be461-fa62-4b84-9eab-c907e59b2e3e)
