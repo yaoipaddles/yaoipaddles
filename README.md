@@ -3,13 +3,16 @@
 ![Untitled1_20240521154155](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/4738e9db-8e94-4c0f-80f1-42fb82fcc928)
 
 
-︵︵ HAI u can call me tallulah or joan! 
+                                       ︵︵ HAI u can call me tallulah or joan! 
 
-︵︵
-my special interests r the history of prussia and queer history 
-i have 3 hermit crabs and i talk about them often because they are my favorite things ever
-i love south park mainly seasons 1-6
-![duihojpsink](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/a7449ede-fc4c-4517-a9b3-c742b4c2a51c)
+
+                              my special interests r the history of prussia and queer history 
+
+                    i have 3 hermit crabs and i talk about them often because they are my favorite things ever
+
+                                         i love south park mainly seasons 1-6
+
+
 
 ![pony-town-sappho-_w2int_ read my github!-boop-blinking-fixed-padded-1x](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/f58e0c06-6cfe-4b4e-8a43-f4e7f471d411)
 ![pony-town-aranea __ shoulder boulders-boop-blinking-fixed-padded-1x](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/e0ca35ec-f4e9-4f85-9f04-ae27e59dd89e)
