@@ -11,7 +11,7 @@
 
                                        ︵︵ hello ! i go by Ota        ꩜  i use he / she pronouns
 
-       ![south-park-kenny-mccormick](https://github.com/yaoipaddles/yaoipaddles/assets/169467251/4e4b1c35-1545-4dcf-8ec4-b53f92a0e814)
+    
 
 
                                              i like touhou, precious moments, and true crime 
