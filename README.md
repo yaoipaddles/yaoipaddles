@@ -9,7 +9,7 @@
 
  
 
-                                       ︵︵ hello ! i go by Ota        ꩜  i use he / she pronouns
+                                       ︵︵ hello ! i go by Amaya        ꩜  i use he / she pronouns
 
     
 
